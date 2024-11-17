@@ -1,3 +1,3 @@
 # Practica 
 for two users
-Hello Magrath to you cum?
+Hello Magrath do you cum?
